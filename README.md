@@ -26,7 +26,7 @@
 - He / Him
 
 ⚡ Fun fact
-My passion for programming started while optimizing my own PC setup. One of my dreams is to build intelligent systems that make life better — and to drift a BMW E36 with a 1JZ engine 😎.
+My passion for programming started while optimizing my own PC setup. One of my dreams is to build intelligent systems that make life better 😎.
 
 
 and.... i speak spanish and i from Dominican Republic
